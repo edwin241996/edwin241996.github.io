@@ -22,7 +22,7 @@ Tambem poder ser o orgulho da minha família, poder ajudar-los em tudo o que eu 
 
 Meu considero pessoa alegre, optimista, pesquiso todas as opções pra conseguir meu objetivo, dificil de rendimentos, me gosta fazer reir a outras pessoas.
 facil de integrar ao grupo, sigo instruções, e sobre tudo creyente em Deus.
-```
+```.
 
 
 
